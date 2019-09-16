@@ -6,3 +6,6 @@
 - [买保险](insurance.md)
 
 - [train](train.md)
+
+- [video](video.md)
+
