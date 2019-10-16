@@ -8,5 +8,6 @@
 - [如何利用复利实现财富自由](https://www.zhihu.com/question/316815307/answer/633427441)
 - [比勤奋更能决定人生的，是复利思维](https://zhuanlan.zhihu.com/p/57675114)
 
-- 
+- [try something new for 30 days](https://www.ted.com/talks/matt_cutts_try_something_new_for_30_days#t-182644)
 
+- 
