@@ -10,4 +10,7 @@
 
 - [try something new for 30 days](https://www.ted.com/talks/matt_cutts_try_something_new_for_30_days#t-182644)
 
+- [inside the mind of a master procrastinator](https://www.ted.com/talks/tim_urban_inside_the_mind_of_a_master_procrastinator#t-367840)
+
 - 
+
