@@ -1,3 +1,5 @@
+[如何用保险保障自己的一生](https://www.zhihu.com/question/22316395/answer/100909780?hb_wx_block=0&utm_source=wechat_session&utm_medium=social&s_s_i=CFSPuRDPwtW7TlSmu0OW1CqdLjS7EpuScxOY%2BM%2FQjt8%3D&s_r=1)
+
 # 买保险
 
 ## 法则
